@@ -4,4 +4,3 @@
 # #1 - credit it with the link. (In the video description)
 
 Well I think that's it...
-But yes, only read if you are a YouTuber.
